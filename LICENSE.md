@@ -1,4 +1,4 @@
-# 
+# new Audacity for PC | Audacity for Windows Template | EQ + plugin-support offers the most advanced Audacity for PC | Audacity for Windows template, with EQ and plugin-support.
 
 
 
